@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Programming, Technology etc**
 
-- 📫 How to reach me **oludedolapo@gmai.com**
+- 📫 How to reach me **oludedolapo@gmail.com**
 
 - 😄 Pronouns: **He/Him/His
 
